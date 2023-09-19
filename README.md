@@ -1,7 +1,4 @@
 
-# Cloud Data Engineering Course Content
-
-## For Training Contact 91 - 8374899166
 
 ------
 
